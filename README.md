@@ -1,1 +1,1 @@
-# -trip-2026
+# yunnan-trip-2026
